@@ -1,4 +1,5 @@
-![BOX DÍA DE LA MADRE](Instagram%20hist%C3%B3ria%20d%C3%ADa%20de%20la%20madre.png)
+![BOX DÍA DE LA MADRE](Instagramhistóriadíadelamadre.png)
+(Instagram%20hist%C3%B3ria%20d%C3%ADa%20de%20la%20madre.png)
 
 ### BOX DÍA DE LA MADRE
 4 mini tortas 100% saludables, sin azúcar refinada. En caja de regalo con moño.
@@ -9,8 +10,7 @@
 - Mini tarta frutilla y choco 60%
 
 **$32.000**
-
-📍 Pilar - Envíos gratis
+Pilar - Envíos gratis
 Pedidos hasta viernes 16/10
 
 [Reservar por WhatsApp](https://wa.me/5491132048610text=Hola!%20Quiero%20reservar%20el%20Box%20Día%20de%20la%20Madre)

@@ -9,7 +9,7 @@
     <li>Mini tarta frutilla y choco 60%</li>
   </ul>
   <p><strong>$32.000</strong></p>
-  <p>📍 Pilar - Envíos según zona / Retiro sin cargo</p>
+  <p>📍 Pilar - Envíos gratis
   <p>Pedidos hasta viernes 16/10</p>
   <a href="https://wa.me/549XXXXXXXXXX?text=Hola!%20Quiero%20reservar%20el%20Box%20Día%20de%20la%20Madre" class="btn">Reservar por WhatsApp</a>
 </div>

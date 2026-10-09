@@ -1,4 +1,4 @@
-![BOX DÍA DE LA MADRE](box-dia-madre.jpg)
+![BOX DÍA DE LA MADRE](Instagram%20hist%C3%B3ria%20d%C3%ADa%20de%20la%20madre.png)
 
 ### BOX DÍA DE LA MADRE
 4 mini tortas 100% saludables, sin azúcar refinada. En caja de regalo con moño.
@@ -14,4 +14,3 @@
 Pedidos hasta viernes 16/10
 
 [Reservar por WhatsApp](https://wa.me/54911XXXXXXXX?text=Hola!%20Quiero%20reservar%20el%20Box%20Día%20de%20la%20Madre)
-![BOX DÍA DE LA MADRE](Instagram%20história%20día%20de%20la%20madre.png)
